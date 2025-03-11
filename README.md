@@ -89,7 +89,6 @@ As a System Engineer, I am seeking to transition into the field of Generative AI
 ## 📫 Contact
 
 - **Tech Blog**: [https://hunihub.link/](https://hunihub.link/)
-- **Discord** : [https://discord.gg/S8bH9Wwr](https://discord.gg/S8bH9Wwr)
 
 ---
 
